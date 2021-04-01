@@ -1,3 +1,3 @@
-# Oi Pessoal !! :>
+# Oi Pessoal !! :)
 
 reademe do repositório
